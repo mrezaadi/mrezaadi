@@ -1,6 +1,6 @@
 ### Hi there, I'm Muhammad Reza 👋 
 
-## I'm a Student, Learner, Dreamer, and !!
+## I'm a Student, Learner, and Dreamer!!
 
 - 🔭 I'm studying to become a Data Scientist
 - 🌱 Actually I like to learn a lot of new things 🤣
