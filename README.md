@@ -32,6 +32,4 @@ I would love to connect with you! Feel free to reach out to me via:
 [linkedin]: https://www.linkedin.com/in/rezaadinugraha/
 
 
----
-
 Thank you for visiting my GitHub profile! 😊
