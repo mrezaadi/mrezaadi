@@ -30,6 +30,3 @@ I would love to connect with you! Feel free to reach out to me via:
 [twitter]: https://twitter.com/mrezaadii
 [instagram]: https://www.instagram.com/mrezaadii/
 [linkedin]: https://www.linkedin.com/in/rezaadinugraha/
-
-
-Thank you for visiting my GitHub profile! 😊
